@@ -170,4 +170,4 @@ O diferencial está em:
 
 ## 🤝 Contato
 
-(Adicione seu LinkedIn aqui)
+wwww.linkedin.com/in/janilucia-gomes-82369b2a7
